@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TejasriNarayanapurapu
-- 👀 I’m interested in ...Learning something unique technologies!! 
+- 👀 I’m interested in ...Learning something unique!! 
 - 🌱 I’m currently learning ...Python
 - 📫 How to reach me ...By mails
 - 😄 Pronouns: ...chinophile!
